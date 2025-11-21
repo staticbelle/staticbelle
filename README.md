@@ -4,7 +4,7 @@
 
   𓍼  C+H  + CHAT  ,  ALWAYS   ,  ENCOURAGED
 
-” and worse you're at my mercy! ” ／   offtab a LOT just whisp! 
+𐙚     ︵︵   ” I say when to sit and stay ,, ” ／   offtab a LOT just whisp!    𐙚︵
 
 ︶  ships can interact! you can light inspo my ponies! other systems can int! ( PLS DO )  ꣑୧
   
